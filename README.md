@@ -1,0 +1,1 @@
+# Tanpa-filter-dan-Tanpa-Segmentasi
